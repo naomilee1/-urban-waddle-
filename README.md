@@ -1,1 +1,2 @@
-# -urban-waddle-
+# Unleash Your Organization's Potential
+It can feel difficult to figure out what your employees are really thinking, and harder to engage them in a meaningful way. This can create miscommunication and a lack of trust. You have so many burning fires that it’s challenging to create the space to address your needs – particularly without the right expertise in-house. Like you, we’re small business owners. We know how it feels to have so many burning fires, and we commit to meeting your needs in this moment. 
